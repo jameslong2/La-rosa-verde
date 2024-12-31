@@ -17,7 +17,7 @@ como la miel al paladar.</br>
 Ahora imaginar,</br>
 alas de cristal,</br>
 por montañas de extasis,</br>
-me me hacian volar.</br>
+que me hacian volar.</br>
 </br>
 Dulce elíxir de alegria,</br>
 tu me haces querer vivir,</br>
